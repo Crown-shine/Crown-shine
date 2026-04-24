@@ -1,1 +1,1 @@
-[![VID-20260226-WA0001.gif](https://i.postimg.cc/C55kx9bx/VID-20260226-WA0001.gif)](https://postimg.cc/m1xtdXdv)
+[![Crown Shine Logo](https://avatars.githubusercontent.com/u/263085661?s=400&u=590743fd262acb6ec5f21d65fa6682d179781717&v=4)](https://github.com/Crown-shine)
